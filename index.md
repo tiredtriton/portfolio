@@ -8,4 +8,4 @@ I need a summer internship at FAANG. Please Hire Me.
 ### My experience:
 - Discord moderator
 - Reddit moderator
-- X (formerly Twitter) proffesional arguer
+- X (formerly Twitter) professional arguer
